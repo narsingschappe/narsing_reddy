@@ -1,1 +1,0 @@
-# narsing_reddy
